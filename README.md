@@ -1,4 +1,4 @@
-# 👋 Hey there, I’m Andolo
+# 👋 Hey there, I’m Begisen
 
 I count money for a living 💸 — but my real passion lies in numbers of a different kind.
 
